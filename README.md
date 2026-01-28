@@ -1,0 +1,2 @@
+# 3a5f8463-566a-488e-8e98-458f0a564349-hero-2
+Hero section variant 2 for 3a5f8463-566a-488e-8e98-458f0a564349
